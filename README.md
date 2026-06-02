@@ -9,7 +9,8 @@
 
 **about**
 
-I love learning across different fields, which is probably why I ended up in a dual degree. I'm drawn to problems that make me think, and lately that's been pulling me toward cybersecurity.
+I love learning across different fields, which is probably why I ended up in a dual degree. 
+I'm drawn to problems that make me think and lately that's been pulling me toward cybersecurity.
 
 ---
 
