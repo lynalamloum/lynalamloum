@@ -1,7 +1,6 @@
 ### hi, I'm Lyna 🧘🏻‍♀️
 
 🎓 Dual degree in MIASHS x Economics & Management @ Paris Nanterre  
-*a little too curious for her own good.*
 
 ![she/her](https://img.shields.io/badge/she%2Fher-d4a888?style=flat-square&labelColor=2a1e18)
 ![French · English](https://img.shields.io/badge/French_·_English-d4a0b0?style=flat-square&labelColor=28181e)
