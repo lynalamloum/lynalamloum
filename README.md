@@ -9,8 +9,8 @@
 
 **about**
 
-I'm an overthinker who loves to resolve problems and lately that's been pulling me toward cybersecurity.
-I love learning across different fields, which is probably why I ended up in a dual degree.
+Overthinker who turned her inability to pick one field into a dual degree.  
+Curious about everything, currently fixated on cybersecurity.
 
 ---
 
