@@ -17,5 +17,5 @@ I love learning across different fields, which is probably why I ended up in a d
 
 ♡ **languages** &nbsp; Python · C · JavaScript  
 ♡ **exploring** &nbsp; cybersecurity, just getting started  
-♡ **writing** &nbsp; working up the courage to start a Substack ><  
-♡ **open to** &nbsp; conversations, collabs, recommendations  
+♡ **writing**  &nbsp;  working up the courage to start a Substack ><  
+♡ **open to**  &nbsp;  conversations, collabs, recommendations  
